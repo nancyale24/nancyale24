@@ -1,4 +1,4 @@
-### Hola! 👋😊 Mi nombre es Nancy Alejandra Front End Developer Jr. ✨
+### Hola! 👋😊 Mi nombre es Nancy Alejandra soy Front End Developer Jr. ✨
 
 
 ### Conocimientos 💻
